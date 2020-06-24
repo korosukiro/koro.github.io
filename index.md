@@ -13,6 +13,6 @@ as Whis and Beerus both recognize it and the Hakaishin from each universe stand 
 * Sayajin
 * 32 Jahre alt
 * stärkstes Wesen im Universum
-*Stufen
-  *SSJ1
-   *SSJ2
+* Stufen
+  * SSJ1
+   * SSJ2
