@@ -22,6 +22,6 @@ as Whis and Beerus both recognize it and the Hakaishin from each universe stand 
   
   > Share your Energy with me
   > Kamehameha
-  
+  > nooooooo
   
   <img src="https://c.wallhere.com/photos/b9/56/Son_Goku_ultra_instict_Mastered_ultra_instinct_Ultra_Instinct_Goku_saiyan_grey_hair_gray_eyes_Dragon_Ball-1269857.jpg!d"/>
