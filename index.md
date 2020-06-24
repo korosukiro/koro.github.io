@@ -16,3 +16,9 @@ as Whis and Beerus both recognize it and the Hakaishin from each universe stand 
 * Stufen
   * SSJ1
    * SSJ2
+   
+   
+  As Goku said:
+  
+  > Share your Energy with me
+  > Kamehameha
