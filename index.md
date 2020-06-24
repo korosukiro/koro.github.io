@@ -7,3 +7,12 @@ it now sports purple and red hues as well and is noticeably brighter.
 In the manga, the Hakaishin Beerus notes that any god would recognize this form as the technique Ultra Instinct.
 This seems to be the case in the anime as well, 
 as Whis and Beerus both recognize it and the Hakaishin from each universe stand to acknowledge Goku's achievement.
+
+## Stichpunktliste zu Goku Ultra Instict
+
+* Sayajin
+* 32 Jahre alt
+* stärkstes Wesen im Universum
+* Stufen
+  * SSJ1
+   * SSJ2
